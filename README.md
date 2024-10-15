@@ -2,4 +2,9 @@
 
 ```
 ALLAH Vorosha
+Subahanallah
+```
+
+```
+Ya Rab
 ```
